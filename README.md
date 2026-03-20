@@ -58,4 +58,4 @@ Self Intro Video:https://drive.google.com/file/d/1JmKsYAp030hf3K39hxutBIRAHMs2NT
 
 LinkedIn:https://www.linkedin.com/in/rohan-singha-1ab08220a/
 
-Email: (dipsingha65@gmail.com)
+Email: dipsingha65@gmail.com
