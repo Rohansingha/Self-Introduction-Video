@@ -54,7 +54,7 @@ Professional portfolio showcase
 
 📬 Contact
 
-Self Intro Video: https://youtu.be/hKs-oWho4aM
+Self Intro Video:https://drive.google.com/file/d/1JmKsYAp030hf3K39hxutBIRAHMs2NThL/view?usp=sharing
 
 LinkedIn: https://www.linkedin.com/in/shreya-roy-b868672b6
 
