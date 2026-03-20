@@ -56,6 +56,6 @@ Professional portfolio showcase
 
 Self Intro Video:https://drive.google.com/file/d/1JmKsYAp030hf3K39hxutBIRAHMs2NThL/view?usp=sharing
 
-LinkedIn: https://www.linkedin.com/in/shreya-roy-b868672b6
+LinkedIn:https://www.linkedin.com/in/rohan-singha-1ab08220a/
 
-Email: (Add your actual email here)
+Email: (dipsingha65@gmail.com)
